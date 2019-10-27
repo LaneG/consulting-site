@@ -1,5 +1,4 @@
-lanehalley
+Lane Goldstone Consulting
 ==========
 
-www.lanegoldstone.com 
-www.lanehalley.com
+www.lanegoldstone.com formerly, www.lanehalley.com
