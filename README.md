@@ -1,4 +1,4 @@
-lanegoldstone
+Lane Goldstone Consulting
 ==========
 
 www.lanegoldstone.com 
