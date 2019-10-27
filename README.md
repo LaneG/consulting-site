@@ -2,4 +2,4 @@ lanehalley
 ==========
 
 www.lanegoldstone.com 
-www.lanehalley.com
+formerly, www.lanehalley.com
